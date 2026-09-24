@@ -1,3 +1,3 @@
 24-Sep-2026
 
-<!-- Round 1 · 2026-09-24 14:20:28 · UooQLtAR · zcelbag@slnusbaum.com, bakecookie@me.com -->
+<!-- Round 2 · 2026-09-24 14:20:35 · tAh4wdCp · dexterkarl@live.com, george@airscapitalfunding.com -->
